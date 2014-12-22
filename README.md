@@ -35,823 +35,185 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The faith of the church militant moste effectualie described in this exposition of the 84. Psalme, b
+
+1. ❧To the right honorable,
+and virtuous Ladie, the Comitisse of
+Sussex, &c. Grace and fauour
+both with God and
+man.
+
+1. ¶TO THE HONOrable,
+and for wisdome, godlines,
+and vertue, the renowmed Lorde, Peter
+Oxe, Lord of Gisselfelde, Master of the Palace
+both of the King, and also of the Kingdome
+of Denmarke, &c. his most gratious
+Lord and worthie Pation, NICHOLAS HEMMINGIUS,
+wisheth al peace, safetie,
+and prosperitie in his godlie
+enterprises.
+
+1. AN ANTITHESIS BEtwene
+the vane glorie of the worlde,
+and the true glorie of the
+faithful.
+
 #####Body#####
+PSALME 84.1 O Lord of hostes, how amiable
+are thy tabernacles!2 My soule longeth, yea, &
+fainteth fo
+    _ CHAP. 1.
 
-1. CHAP. 1.
+    _ CHAP. 2.
 
-    _ The vse of this Psalme.
+    _ CHAP. 3.
 
-    _ A general forme of praier.
+    _ CHAP. 4.
 
-    _ A praier vnto Christ.
+    _ CHAP. 5.
 
-    _ A forme of praier to be saide of anie
+    _ CHAP. 6.
+
+    _ CHAP. 7.
+
+    _ CHAP. 8.
+
+    _ CHAP. 9.
+
+    _ CHAP. 10.
+
+    _ CHAP. 11.
+
+    _ CHAP. 12.
+
+    _ CHAP. 13.
+
+    _ CHAP. 14.
+
+    _ CHAP. 15.
+
+    _ CHAP. 16.
+
+    _ CHAP. 17.
+
+    _ CHAP. 18.
+
+    _ CHAP. 19.
+
+    _ CHAP. 20.
+
+    _ CHAP. 21.
+
+    _ CHAP. 22.
+
+    _ CHAP. 23.
+
+    _ CHAP. 24.
+
+    _ CHAP. 25.
+
+    _ CHAP. 26.
+
+    _ CHAP. 27.
+
+    _ CHAP. 28.
+
+    _ CHAP. 29.
+
+    _ CHAP. 30.
+
+    _ CHAP. 31.
+
+    _ CHAP. 32.
+
+    _ CHAP. 33.
+
+    _ CHAP. 34.
+
+    _ CHAP. 35.
+
+    _ CHAP. 36.
+
+    _ CHAP. 37.
+
+    _ CHAP. 38.
+
+    _ CHAP. 39.
+
+    _ CHAP. 40.
+
+    _ CHAP. 41.
+
+    _ CHAP. 42.
+
+1. THE SECOND
+part of the Psalme.
+
+    _ CHAP. 1.
+
+    _ CHAP. 2.
+
+    _ CHAP. 3.
+
+    _ CHAP. 4.
+
+    _ CHAP. 5.
+
+    _ CHAP. 6.
+
+1. THE THIRD PART
+OF THIS PSALME.
+
+    _ CHAP. 1.
+
+    _ CHAP. 2.
+
+    _ CHAP. 3.
+
+    _ CHAP. 4.
+
+1. THE FOVRTH
+part of the Psalme.
+
+    _ CHAP. 1.
+
+    _ CHAP. 2.
+
+    _ CHAP. 3.
+
+    _ CHAP. 4.
+
+    _ CHAP. 5.
+
+    _ CHAP. 6.
+
+      * The vse of this Psalme.
+
+      * A general forme of praier.
+
+      * A praier vnto Christ.
+
+      * A forme of praier to be saide of anie
 man, by, and for himselfe.
 
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 2.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 3.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 4.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 5.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 6.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 7.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 8.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 9.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 10.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 11.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 12.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 13.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 14.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 15.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 16.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 17.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 18.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 19.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 20.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 21.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 22.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 23.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 24.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 25.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 26.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 27.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 28.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 29.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 30.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 31.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 32.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 33.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 34.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 35.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 36.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 37.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 38.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 39.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 40.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 41.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 42.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 1.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 2.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 3.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 4.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 5.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 6.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 1.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 2.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 3.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 4.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 1.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 2.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 3.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 4.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 5.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
-à familie.
-
-1. CHAP. 6.
-
-    _ The vse of this Psalme.
-
-    _ A general forme of praier.
-
-    _ A praier vnto Christ.
-
-    _ A forme of praier to be saide of anie
-man, by, and for himselfe.
-
-    _ A forme of praier for
+      * A forme of praier for
 à familie.
 
 #####Back#####
-The faith of the church militant moste effectualie described in this exposition of the 84. Psalme, b
+
+1. THE FIRST TAble
+comprehending special
+names of Men, Women, &c.
+after the order of the
+Alphabet.
+
+1. The seconde Table containing
+a viewe of the special pointes
+comprehended in this
+Booke.
+
+1. Faultes escaped.
+
 **Types of content**
 
   * There are 22 **verse** lines!
